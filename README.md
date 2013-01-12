@@ -5,13 +5,15 @@ A list (in no particular order) of things I'd like to achieve or experience befo
 
 ## The List
 
-- [ ] Circumnavigate the globe.
-- [ ] Start a product based company.
-- [ ] Live for at least a year with no home.
-- [ ] Write a book.
-- [ ] Learn some AI programing.
-- [ ] Create a game that (at least some) people play.
-- [ ] Record an album.
-- [ ] Have kids.
-- [ ] Skydive.
-- [ ] Live in a remote cabin for at least a month.
+- [ ] See all of Asia
+- [ ] Live without technology for a month while somewhere warm
+- [ ] Have four year old son with long hair and converse sneakers
+- [ ] Play rugby, get tackled violently
+- [ ] Jump off of something high, parachute down
+- [ ] Be in a band, perform at least five times, break up passionately
+- [ ] Get married in secret
+- [ ] Invent something people love
+- [ ] Be in a crazy Savagesesque relationship for a Summer
+- [ ] Live in Scandanavia for a little while
+- [ ] Retire for at least a year before 2020
+
