@@ -13,7 +13,7 @@ A list (in no particular order) of things I'd like to achieve or experience befo
 - [ ] Be in a band, perform at least five times, break up passionately
 - [ ] Get married in secret
 - [ ] Invent something people love
-- [ ] Be in a crazy Savagesesque relationship for a Summer
+- [ ] Be in a love triangle for a Summer
 - [ ] Live in Scandanavia for a little while
 - [ ] Retire for at least a year before 2020
 
